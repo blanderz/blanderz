@@ -1,2 +1,2 @@
- Hi, I’m tuan Phan a.k.a @blanderz
+ Hi, I’m Tuan Phan a.k.a @blanderz
  
